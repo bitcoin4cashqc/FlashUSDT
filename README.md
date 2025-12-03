@@ -3,6 +3,8 @@ Contact me on Telegram if you are interested in buying this USDT/Token flasher. 
 
 @SoliditySam
 
+Or https://x.com/Btc4Cash
+
 
 
 🔍 Overview
